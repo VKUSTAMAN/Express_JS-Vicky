@@ -1,3 +1,1 @@
-Author: @yaelahno
-
-![Screenshot from 2020-02-08 23-19-16](https://user-images.githubusercontent.com/50629099/74088646-205cf180-4acb-11ea-9db9-7877c10242e9.png)
+![image](https://user-images.githubusercontent.com/53421818/74131600-42638a80-4c17-11ea-996c-3796c6069693.png)
